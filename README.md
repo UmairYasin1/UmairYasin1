@@ -43,7 +43,7 @@ Delivered enterprise applications, led teams, mentored developers, and collabora
 
 ## 📫 Let's Connect
 - [LinkedIn](https://www.linkedin.com/in/umair-yasin-a5081944)  
-- [Email](mailto:your.email@example.com)
+- [Email](mailto:umair_yasin@hotmail.com)
 
 ---
 
